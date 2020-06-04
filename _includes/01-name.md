@@ -1,5 +1,4 @@
-#### Larry Pactol says:
-# Thanks for checking out my portfolio! 
+## Just a little bit of nothingness.
 
 
 
