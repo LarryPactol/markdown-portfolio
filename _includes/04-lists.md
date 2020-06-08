@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+My Favorite Foods:
+
+* Roasted Pork Belly
+* Fish Stew
+* Chicken Casserole 
