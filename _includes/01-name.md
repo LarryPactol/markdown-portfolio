@@ -1,1 +1,28 @@
-Replace this with your name, and include a header.
+#### Larry Pactol says:
+# Thanks for checking out my portfolio! 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Have a good day!
